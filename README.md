@@ -5,4 +5,4 @@
 - 💬 Ask me about Robots and GoKarts
 - 📫 How to reach me: email or tweet at me
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I love welding, woodworking, sewing, and cooking.
+- :martial_arts_uniform: Fun fact: I studied martial arts as a kid and have a black belt.
